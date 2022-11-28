@@ -24,17 +24,15 @@ redirect_from:
 
 ## 人员名单（视频里的同胞，希望有认识的提供姓名身份地址,持续更新）
 
-## 目前上海被抓已有60多人，其他各地十余人，不能让他们消失变成人体器官！
+## 目前上海被抓已有60多人，其他各地十余人，保护同胞 不能让他们被殴打 被消失！
 
 ### 11月27号
 
 1. [上海捧花男同胞被抓视频](https://lovechina-remembertruth.github.io/People/files/people202211271.mp4)
 
-2. [上海挡车男同胞被抓视频](https://lovechina-remembertruth.github.io/People/)
+2. [上海女生被抓哭的撕心裂肺](https://lovechina-remembertruth.github.io/People/files/people202211272.mp4)
 
-3. [上海被抓女同胞殴打视频视频](https://lovechina-remembertruth.github.io/People/files/people202211273.mp4)
-
-4. [上海警局里女生被打尖叫，黑警看不惯人民群众](https://lovechina-remembertruth.github.io/People/)
+3. [上海被抓女同胞在车内被殴打视频视频](https://lovechina-remembertruth.github.io/People/files/people202211273.mp4)
 
 5. [上海路边抓人视频](https://lovechina-remembertruth.github.io/People/files/people202211279.mp4)
 
@@ -50,9 +48,11 @@ redirect_from:
 
 9. [广州珠海广场有人被抓](https://lovechina-remembertruth.github.io/People/files/people2022112713.mp4)
 
+2. [上海挡车男同胞被抓视频，待上传]()
 
+4. [上海警局里女生被打尖叫，黑警看不惯人民群众，待上传]()
 
-待补充
+持续补充
 
 
 ### 11月26号 (上海 乌鲁木齐路 被抓走两大巴车的同胞)
@@ -67,7 +67,7 @@ redirect_from:
 
 5. [数十人被捕](https://lovechina-remembertruth.github.io/People/files/people202211265.jpg)
 
-待补充
+持续补充
 
 
 ## 黑警名单
