@@ -21,11 +21,11 @@ redirect_from:
 
 
 
-## 人员名单（目前很多未有信息，提供视频为证，希望有认识的提供姓名身份地址）
+## 人员名单（视频里的同胞，希望有认识的提供姓名身份地址）
 
 ### 11月27号
 
-1. [号上海捧花男同胞](https://lovechina-remembertruth.github.io/People/)
+1. [上海捧花男同胞](https://lovechina-remembertruth.github.io/People/)
 
 2. [上海挡车男同胞](https://lovechina-remembertruth.github.io/People/)
 
