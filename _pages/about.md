@@ -46,6 +46,8 @@ redirect_from:
 
 8. [广州珠海广场有人被抓](https://lovechina-remembertruth.github.io/People/files/people2022112713.mp4)
 
+待补充
+
 
 ### 11月26号 (上海 乌鲁木齐路 被抓走两大巴车的同胞)
 
@@ -56,6 +58,8 @@ redirect_from:
 3. [被抓同胞3照片](https://lovechina-remembertruth.github.io/People/files/people202211263.jpg)
 
 4. [被抓同胞4照片](https://lovechina-remembertruth.github.io/People/files/people202211264.jpg)
+
+待补充
 
 
 ## 黑警名单
