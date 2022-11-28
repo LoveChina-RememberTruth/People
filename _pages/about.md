@@ -28,16 +28,29 @@ redirect_from:
 
 ### 11月27号
 
-1. [上海捧花男同胞](https://lovechina-remembertruth.github.io/People/)
+1. [上海捧花男同胞被抓视频](https://lovechina-remembertruth.github.io/People/files/people202211271.mp4)
 
-2. [上海挡车男同胞](https://lovechina-remembertruth.github.io/People/)
+2. [上海挡车男同胞被抓视频](https://lovechina-remembertruth.github.io/People/)
 
-3. [上海警车大巴被殴打女同胞](https://lovechina-remembertruth.github.io/People/)
+3. [上海被抓女同胞殴打视频视频](https://lovechina-remembertruth.github.io/People/files/people202211273.mp4)
 
-4. [上海女同胞](https://lovechina-remembertruth.github.io/People/)
+4. [上海警局里女生被打尖叫，黑警看不惯人民群众](https://lovechina-remembertruth.github.io/People/)
 
-5. [上海警局里女生被打尖叫](https://lovechina-remembertruth.github.io/People/)
+5. [成都望平街抓人视频](https://lovechina-remembertruth.github.io/People/)
 
+6. [武汉汉江路抓人视频](https://lovechina-remembertruth.github.io/People/)
+
+7. 
+
+### 11月26号 (上海 乌鲁木齐路 被抓走两大巴车的同胞)
+
+1. [被抓同胞1照片](https://lovechina-remembertruth.github.io/People/files/people202211261.jpg)
+
+2. [被抓同胞2照片](https://lovechina-remembertruth.github.io/People/files/people202211262.jpg)
+
+3. [被抓同胞3照片](https://lovechina-remembertruth.github.io/People/files/people202211263.jpg)
+
+4. [被抓同胞4照片](https://lovechina-remembertruth.github.io/People/files/people202211264.jpg)
 
 
 ## 黑警名单
