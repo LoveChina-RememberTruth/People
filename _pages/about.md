@@ -38,13 +38,13 @@ redirect_from:
 
 5. [上海路边抓人视频](https://lovechina-remembertruth.github.io/People/files/people202211279.mp4)
 
-5. [成都望平街便衣视频](https://lovechina-remembertruth.github.io/People/files/people2022112712.mp4))
+5. [成都望平街便衣视频](https://lovechina-remembertruth.github.io/People/files/people2022112712.mp4)
 
-6. [武汉汉江路抓人视频](https://lovechina-remembertruth.github.io/People/files/people2022112711.mp4))
+6. [武汉汉江路抓人视频](https://lovechina-remembertruth.github.io/People/files/people2022112711.mp4)
 
-7. [南京新街口举白纸女生被带走](https://lovechina-remembertruth.github.io/People/files/people2022112710.mp4))
+7. [南京新街口举白纸女生被带走](https://lovechina-remembertruth.github.io/People/files/people2022112710.mp4)
 
-8. [广州珠海广场有人被抓](https://lovechina-remembertruth.github.io/People/files/people2022112713.mp4))
+8. [广州珠海广场有人被抓](https://lovechina-remembertruth.github.io/People/files/people2022112713.mp4)
 
 
 ### 11月26号 (上海 乌鲁木齐路 被抓走两大巴车的同胞)
