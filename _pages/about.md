@@ -38,13 +38,19 @@ redirect_from:
 
 5. [上海路边抓人视频](https://lovechina-remembertruth.github.io/People/files/people202211279.mp4)
 
-5. [成都望平街便衣视频](https://lovechina-remembertruth.github.io/People/files/people2022112712.mp4)
+10. [上海乌鲁木齐路朋友失联](https://lovechina-remembertruth.github.io/People/files/people202211275.jpg)
 
-6. [武汉汉江路抓人视频](https://lovechina-remembertruth.github.io/People/files/people2022112711.mp4)
+10. [上海淮海中路对峙被捕](https://lovechina-remembertruth.github.io/People/files/people202211276.jpg)
 
-7. [南京新街口举白纸女生被带走](https://lovechina-remembertruth.github.io/People/files/people2022112710.mp4)
+6. [成都望平街便衣视频](https://lovechina-remembertruth.github.io/People/files/people2022112712.mp4)
 
-8. [广州珠海广场有人被抓](https://lovechina-remembertruth.github.io/People/files/people2022112713.mp4)
+7. [武汉汉江路抓人视频](https://lovechina-remembertruth.github.io/People/files/people2022112711.mp4)
+
+8. [南京新街口举白纸女生被带走](https://lovechina-remembertruth.github.io/People/files/people2022112710.mp4)
+
+9. [广州珠海广场有人被抓](https://lovechina-remembertruth.github.io/People/files/people2022112713.mp4)
+
+
 
 待补充
 
@@ -58,6 +64,8 @@ redirect_from:
 3. [被抓同胞3照片](https://lovechina-remembertruth.github.io/People/files/people202211263.jpg)
 
 4. [被抓同胞4照片](https://lovechina-remembertruth.github.io/People/files/people202211264.jpg)
+
+5. [数十人被捕](https://lovechina-remembertruth.github.io/People/files/people202211265.jpg)
 
 待补充
 
